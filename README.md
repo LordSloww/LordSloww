@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LordSloww
+- 👀 I’m interested in my a-levels
+- 🌱 I’m currently learning computer science
+- 💞️ I’m looking to collaborate on nothing right now
+- 📫 How to reach me.. well you dont :)
